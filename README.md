@@ -3,6 +3,8 @@
 **Brooder | Alpha, insights, and market moves.**
 Helping you navigate crypto and uncover the next big opportunity.
 
+Ca Pump.fun : BrzBYMU8VdQfTcpPyKUU4kLx6vupEybdWG85LDdQpump
+
 ---
 
 ## 📌 Overview
